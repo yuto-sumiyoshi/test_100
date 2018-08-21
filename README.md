@@ -1,4 +1,2 @@
-# ヤムチャ
-# 天津飯
-# 餃子
-# クリリン
+# 繝､繝繝√Ε
+yamuchaaaaaaaaaaaaaaaaaaaaaaaa
